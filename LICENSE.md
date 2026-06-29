@@ -1,4 +1,4 @@
-# 
+# Seguro Adobe After Effects plugins para Mac OS | Premium Adobe After Effects plugins para PC Windows. Com sintetizadores e rolos de piano — otimizado para máximo desempenho em cada plataforma.
 
 
 
